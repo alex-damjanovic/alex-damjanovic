@@ -1,2 +1,2 @@
 
-Passionate about finance, programming & FOSS. 
+Passionate about economics, programming & FOSS. 
